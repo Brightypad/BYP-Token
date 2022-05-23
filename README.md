@@ -2,7 +2,7 @@ BrightyPad is a brand-new design that goes a great distance beyond than just bei
 
 Follow us :
 
-Website : BrightyPad.com
+Website : https://BrightyPad.com
 
 Telegram : https://t.me/BrightyPadCommunity
 
